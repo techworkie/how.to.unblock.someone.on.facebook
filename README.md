@@ -1,6 +1,6 @@
 # How to Unblock Someone on Facebook?
 
-[![How to Unblock Someone on Facebook](redd.png)](https://github.com/techworkie/how.to.unblock.someone.on.facebook)
+[![How to Unblock Someone on Facebook](redd.png)](https://icncomputer.com/how-to-unblock-someone-on-facebook/)
 
 
 
